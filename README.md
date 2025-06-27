@@ -1,0 +1,1 @@
+# Smartsdic---Ai-Enhanced-Software-Development-Lifecycle
